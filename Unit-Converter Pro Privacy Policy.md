@@ -1,4 +1,4 @@
-# Unit-Converter-Pro
+# Unit-Converter-Pro Privacy Policy
 
 Unit Converter Pro Last updated [August 7th, 2022]
 
